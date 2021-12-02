@@ -1,1 +1,0 @@
-Acest folder contine imagini
